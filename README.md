@@ -1,4 +1,4 @@
-👋 Hi, I’m @ShushantLakhyani
+👋 Hi, I’m ShushantLakhyani
 
 👀 I love to build new stuff with AI
 
